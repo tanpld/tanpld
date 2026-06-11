@@ -1,4 +1,4 @@
-# Hi, I'm @tanpld 👋
+# Hi, I'm Tan 👋
 
 Welcome to my GitHub profile.
 
